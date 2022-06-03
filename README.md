@@ -1,1 +1,1 @@
-https://ObivanKenobi4.github.io/rsschool-cv/
+https://ObivanKenobi4.github.io/rsschool-cv/cv
